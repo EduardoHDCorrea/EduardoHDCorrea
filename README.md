@@ -1,0 +1,2 @@
+life goals:
+- mak money
